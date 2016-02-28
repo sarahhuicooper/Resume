@@ -33,7 +33,7 @@ BOTO Education （博图教育） strives to redifine the test preparation indus
 * Designed and led creation of a 5 year multimedia English Language Arts course tailored for Chinese students
 
 ##### **DK Education** | Beijing, China | August 2012 - July 2014  
-_Academic Director_
+_Academic Director_  
 * Developed and taught an AP Calculus BC course
 Filmed and produced a series of vocabulary and reading videos for marketing
 * Established partnerships with top schools in Beijing
