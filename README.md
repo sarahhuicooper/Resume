@@ -39,7 +39,7 @@ Filmed and produced a series of vocabulary and reading videos for marketing
 * Established partnerships with top schools in Beijing
 * Trained and supported a team that grew from 12 to 21 teachers
 
-###### **EDUCATION**
+#### **EDUCATION**
 
 **Bryn Mawr College** | Bryn Mawr, PA | Graduated: May 2012  
  _Bachelor of Arts in East Asian Studies with a minor in Mathematics_  
@@ -51,7 +51,7 @@ Filmed and produced a series of vocabulary and reading videos for marketing
 
 **Phillips Exeter Academy** | Exeter, NH | Graduated: June 2008
 
-###### SKILLS  
+#### SKILLS  
 * Conversationally fluent in Mandarin Chinese (7 years of academic study)
 * Adobe Final Cut Pro (Versions 7 and X)
 * Advanced knowledge of Microsoft Office Suite (Queen of PowerPoint and Excel)
