@@ -5,18 +5,19 @@ Markdown formatted copy of resume
 #### sarahhuicooper@gmail.com | Los Angeles, CA | (603)395-1455
 
 #### **SUMMARY**  
-A creative problem solver with a strong background in international management. Following college, I moved to Beijing where I catapulted from teacher to co-founder in 2 years. Within the companies I hav eworked with, I have become an integral component of the company as an adaptable problem solver who has worked hard to not only fill gaps, but also to develop long-term solutions.
+A creative problem solver with a strong background in international management. Following college, I moved to Beijing where I catapulted from teacher to co-founder in 2 years. Within the companies I have worked with, I have become an integral component of the company as an adaptable problem solver who has worked hard to not only fill gaps, but also to develop long-term solutions.
 
 #### **EXPERIENCE**
 
 ##### **International Trainee Network** | Los Angeles, CA | February 2016 - Present  
 _Junior Account Manager_  
 ITN utilizes the Department of State's J-1 visa program to bring international employees to the United States where they train in the hospitality industry before returning to their home countries.  
-* manage 10 hotel accounts including the Park Hyatt Aviara and Stratton Mountain Resort
-* 
+* Managed 20 hotel accounts including the Park Hyatt Aviara and Stratton Mountain Resort
+* Coordinated international job fairs
+* Aided business development by establishing new cooperations with properties
 
 ##### **Mountains of Imagination** | Beijing, China | April 2015 - Present  
-_Project Manager_  
+_Project Manager (Part Time)_  
 Mountains of Imagination is a small creative and presentation consulting studio.  
 * Developed treatments for Volkswagon campaigns for the Moon Festival and Lunar New Year
 * Edited and translated deliverables and presentations
@@ -24,7 +25,7 @@ Mountains of Imagination is a small creative and presentation consulting studio.
 
 ##### **DMG Entertainment** | Beijing, China | January 2015 - Present  
 _Intern_  
-DMG Entertainment is a major film producer and distributor of both Chinese and American films. At DMG, I developed promotional material for Mini Marilyn Monroe and the upcoming Harbings films.
+DMG Entertainment is a major film producer and distributor of both Chinese and American films. At DMG, I developed promotional material for Mini Marilyn Monroe and the upcoming Harbingers films.
 
 ##### **BOTO Education** | Beijing, China | July 2014 - Mary 2015  
 _Co-founder & Academic Director_  
