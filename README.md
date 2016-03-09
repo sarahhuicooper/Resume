@@ -1,5 +1,5 @@
 ### **SARAH HUI COOPER**  
-#### <sarahhuicooper@gmail.com> | Los Angeles, CA | (603)395-1455 
+#### <sarahhuicooper@gmail.com> | Los Angeles, CA | (603) 395-1455 
 ___
 #### **SUMMARY**  
 A creative problem solver with a strong background in international management. Following college, I moved to Beijing where I catapulted from teacher to co-founder in 2 years. Within the companies I have worked with, I have become an integral component of the company as an adaptable problem solver who has worked hard to not only fill gaps, but also to develop long-term solutions.
